@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Raashee
+- 👀 I’m interested in Web designing
+- 🌱 I’m currently learning
+- 📫 reach me on insta - @r.aashee
